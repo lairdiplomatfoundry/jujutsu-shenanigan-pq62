@@ -1,4 +1,4 @@
-
+jujutsu shenanigans updated Scripts is the best jujutsu shenanigans Script, featuring private server access and auto-farm. Safe and powerful for all
 
 
 
